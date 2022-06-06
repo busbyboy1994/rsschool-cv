@@ -12,6 +12,7 @@ ___
 * [Telegram](https://t.me/BusbyBoy)
 * [Instagram](https://www.instagram.com/_busbyboy_)
 * [VK](https://vk.com/busbyboy)
+* [Twitter](https://twitter.com/serega_dem)
 ----
 ### Personal information:
 
