@@ -24,6 +24,7 @@ ___
     Smart, calm, purposeful
     
     I aspire to learn programming languages and English
+    
 ### Skills:
 
     I am at the beginning of the journey. But in the future 
